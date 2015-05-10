@@ -1,0 +1,1 @@
+control quanlity of two agent
